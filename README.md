@@ -1,1 +1,1 @@
-# Exerc-cios-Cruzeiro-do-Sul
+# Exercicíos-Cruzeiro-do-Sul
