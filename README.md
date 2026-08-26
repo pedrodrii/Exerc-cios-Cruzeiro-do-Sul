@@ -1,1 +1,1 @@
-# Exercicíos-Cruzeiro-do-Sul
+# Exercicíos-aloritmos
